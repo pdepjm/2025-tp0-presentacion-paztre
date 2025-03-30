@@ -9,3 +9,7 @@ Me gusta leer, el mate y los tatuajes (tengo 7, no se si es mucho o poco, juzgue
 - Mi legajo es 222-758-7
   
 - Elegí esta carrera porque me gustan las cosas difíciles pero siempre me interesó estudiar *Criminología*, asi que tal vez la estudie en un futuro.
+
+## Foto mia
+
+!(
