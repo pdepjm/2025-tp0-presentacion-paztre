@@ -1,6 +1,6 @@
-## Presentación general
+## Nombre: Paz Trevisani
 
-Holaaa, mi nombre es **Paz Trevisani**, tengo 19 años y soy de **Caballito**.
+Tengo 19 años y soy de **Caballito**.
 
 Me gusta leer, el mate y los tatuajes (tengo 7, no sé si es mucho o poco, juzguen ustedes). Me considero una persona super sociable y que casi siempre esta de buen humor. También me gusta mucho estudiar y aprender cosas nuevas.
 
