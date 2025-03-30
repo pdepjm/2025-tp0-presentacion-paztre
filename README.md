@@ -6,7 +6,7 @@ Me gusta leer, el mate y los tatuajes (tengo 7, no sé si es mucho o poco, juzgu
 
 ## Perfil académico
 
-- Mi legajo es 222-758-7
+- Mi legajo es 222.758-7
   
 - Elegí esta carrera porque me gustan las cosas difíciles pero siempre me interesó estudiar *Criminología*, asi que tal vez la estudie en un futuro.
 
