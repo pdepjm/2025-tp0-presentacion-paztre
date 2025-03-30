@@ -12,4 +12,4 @@ Me gusta leer, el mate y los tatuajes (tengo 7, no se si es mucho o poco, juzgue
 
 ## Foto mia
 
-!(
+![imagen](readmefoto.jpg)
